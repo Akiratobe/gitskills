@@ -1,2 +1,2 @@
 # gitskills
-Creating a new branch is quick.
+I would like to have a long journey to visit Japan.
